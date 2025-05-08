@@ -1,1 +1,1 @@
-README WILL bE UPDATED SOON
+README will be updsted soon
